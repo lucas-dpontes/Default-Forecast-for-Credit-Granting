@@ -1,0 +1,1 @@
+📄 [Confira a apresentação completa do projeto abrindo o arquivo Relatório Final.pdf ou clicando aqui](https://github.com/lucas-dpontes/Default-Forecast-for-Credit-Granting/blob/main/%F0%9F%93%84%20Relat%C3%B3rio%20Final.pdf)
